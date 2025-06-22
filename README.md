@@ -1,0 +1,1 @@
+# gokhanguvenpatent.github.io
